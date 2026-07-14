@@ -1,1 +1,1 @@
-# 9Iy5ZSt7qYFa
+Narzędzie to służy wyłącznie do tworzenia rekwizytów filmowych oraz materiałów o charakterze edukacyjnym. Prezentowane wzory nie są dokumentami publicznymi w rozumieniu przepisów prawa. Posługiwanie się nimi w celu uwierzytelnienia tożsamości lub oszustwa stanowi przestępstwo.
